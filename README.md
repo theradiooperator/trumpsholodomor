@@ -11,6 +11,6 @@ It is to broadcast we see meglomania from a mile away, and while we don't need a
 
 Either Donnie is out of his league or he doesn't care.
 
-And so many more are culpable, across the parties, because they will not stop him.
+And so many more are culpable, across the parties, because they will not stop him. This crippled ability to mitigate disaster is not so unlike the Sovietism. (Let's not give it the honor of being called communism, just as the United States doesn't really resemble a free market.)
 
 —— The Radio Operator.
