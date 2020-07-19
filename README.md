@@ -8,7 +8,7 @@ We do not believe we are trivialising the mass starvation of millions of Ukraini
 
 Our calling the Holodomor into mind is not meant as a strict comparison of severity or even of the exact crime. It is to recognize the cold, sociopathic, Death-Cult-like narcissism of Trump, the cult of personality surrounding him, and the disinformation spewing so blatantly from the highest office. It is to note that we, humanity, have seen this before. 
 
-This is a person, and a political dynamic (read: nearly entirely contrived, something else is possible as soon as the people in charge want it to be) which is killing at a large scale while seemingly being ignored or denied by those most responsible for inaction. Others with power throw up their hands and make all the right noises, yet somehow do little. They are not willing to throw their political bodies on the line. 
+This is a person, and a political dynamic (read: nearly entirely contrived, something else is possible as soon as the people in charge want it to be), which is killing at a large scale while seemingly being ignored or denied by those most responsible for inaction. Others with power throw up their hands and make all the right noises, yet somehow do little. They are not willing to throw their political bodies on the line. 
 
 It is our sense (echoing so many others') that it is dangerous enough that we have a willfully ignorant response to a pandemic on its way to killing hundreds of thousands of people in the United States who did not need to die. We ought to be able to learn from the past from *before* these tragedies become a more apt comparison.
 
