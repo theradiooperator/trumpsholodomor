@@ -18,4 +18,4 @@ Either Donnie *is* out of his league or he *doesn't care*. What is the excuse fo
 
 There are many plausible excuses and interesting analyses about this dynamic; they are not sufficient to erase culpability. This crippled ability to mitigate disaster is not so unlike the worst of Sovietism. (Let's not give it the honor of being called communism, just as the United States doesn't literally much resemble a free market capitalist society.)
 
-—— The Radio Operator
+— The Radio Operator
