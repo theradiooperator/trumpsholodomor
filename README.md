@@ -4,7 +4,7 @@
 
 ## ["I could stand in the middle of 5th Avenue and shoot somebody and I wouldn’t lose voters."](https://www.snopes.com/fact-check/donald-trump-fifth-avenue-comment/) — Donald J. Trump
 
-We do not believe we are trivialising the mass starvation of millions of Ukrainians under Stalin, nor does it matter that Stalin might not have said the above. 
+We do not believe we are trivialising the mass starvation of millions of Ukrainians under Stalin, nor does it matter that Stalin might not have said the above. (If the argument that the Stalin quote at least captures sentiment he actually expressed is true, it makes the Trump quote even more telling.)
 
 Our calling the Holodomor into mind is not meant as a strict comparison of severity or even of the exact crime. It is to recognize the cold, sociopathic, Death-Cult-like narcissism of Trump, the cult of personality surrounding him, and the disinformation spewing so blatantly from the highest office. It is to note that we, humanity, have seen this before. 
 
@@ -14,6 +14,6 @@ It is our sense (echoing so many others') that it is dangerous enough that we ha
 
 Either Donnie *is* out of his league or he *doesn't care*. What is the excuse for leaving him in power? We see his lack of leadership as crimnal, with so many more are culpable, across the parties, because they will not stop him. 
 
-There are many plausible excuses and interesting analyses about this dynamic; they are not sufficient to erase culpability. This crippled ability to mitigate disaster is not so unlike the worst of Sovietism. (Let's not give it the honor of being called communism, just as the United States doesn't really resemble a free market.)
+There are many plausible excuses and interesting analyses about this dynamic; they are not sufficient to erase culpability. This crippled ability to mitigate disaster is not so unlike the worst of Sovietism. (Let's not give it the honor of being called communism, just as the United States doesn't really resemble a free market capitalist society.)
 
 —— The Radio Operator
