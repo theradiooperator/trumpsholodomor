@@ -3,8 +3,6 @@
 
 ## ["I could stand in the middle of 5th Avenue and shoot somebody and I wouldn’t lose voters."](https://www.snopes.com/fact-check/donald-trump-fifth-avenue-comment/) — Donald J. Trump
 
-### WTF?
-
 No, we are not trivialising the mass starvation of millions of Ukrainians under Stalin. And no, it doesn't matter that Stalin may very well not have said the above. The comparison is not a strict comparison of severity or even of the exact crime. 
 
 It is of death-cult-like narcissism that puts so many not just at risk, but in fact kills while being ignored or denied by the narcissist in question. It is to suggest there's *something* akin here, that we can learn from the past from *before* it becomes a 1-to-1 or apples-to-apples comparison.
