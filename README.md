@@ -1,4 +1,4 @@
-# This is Trump's Holodomor.
+# [This is Trump's Holodomor](https://www.nytimes.com/interactive/2020/us/coronavirus-us-cases.html).
 
 ## ["A single death is a tragedy; a million deaths is a statistic."](https://quoteinvestigator.com/2010/05/21/death-statistic/) — attributed to Joseph Stalin
 
