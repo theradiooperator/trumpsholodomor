@@ -10,9 +10,7 @@ Our calling the Holodomor into mind is not meant as a strict comparison of sever
 
 This is a person, and a political dynamic (read: nearly entirely contrived, something else is possible as soon as the people in charge want it to be) which is killing at a large scale while seemingly being ignored or denied by those most responsible for inaction. Others with power throw up their hands and make all the right noises, yet somehow do little. They are not willing to throw their political bodies on the line. 
 
-We ought to be able to learn from the past from *before* these tragedies become a more apt comparison.
-
-It is our sense (echoing so many others') that it is dangerous enough that we have a willfully ignorant response to a pandemic on its way to killing hundreds of thousands of people in the United States who did not need to die.
+It is our sense (echoing so many others') that it is dangerous enough that we have a willfully ignorant response to a pandemic on its way to killing hundreds of thousands of people in the United States who did not need to die. We ought to be able to learn from the past from *before* these tragedies become a more apt comparison.
 
 Either Donnie *is* out of his league or he *doesn't care*. What is the excuse for leaving him in power? We see his lack of leadership as crimnal, with so many more are culpable, across the parties, because they will not stop him. 
 
