@@ -1,37 +1,16 @@
-## Welcome to GitHub Pages
+## ["A single death is a tragedy; a million deaths is a statistic."](https://quoteinvestigator.com/2010/05/21/death-statistic/) — attributed to Joseph Stalin
 
-You can use the [editor on GitHub](https://github.com/theradiooperator/trumpsholodomor/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## ["I could stand in the middle of 5th Avenue and shoot somebody and I wouldn’t lose voters."](https://www.snopes.com/fact-check/donald-trump-fifth-avenue-comment/) — Donald J. Trump
 
-### Markdown
+### WTF?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+No, we are not trivialising the mass starvation of millions of Ukrainians under Stalin. And no, it doesn't matter that Stalin may very well not have said the above. The comparison is not a strict comparison of scarcity. It is of death-cult-like narcissism that puts so many at risk. It is to suggest there's  *something* akin here worth learning from *before* it becomes a 1-to-1 or apples-to-apple comparison.
 
-```markdown
-Syntax highlighted code block
+It is to broadcast we see meglomania from a mile away, and while we don't need a willfully ignorant (at best) famine to see it, we already have a willfully ignorant response to a pandemic on its way to killing hundreds of thousands of people who did not need to die.
 
-# Header 1
-## Header 2
-### Header 3
+Either Donnie is out of his league or he doesn't care.
 
-- Bulleted
-- List
+And so many more are culpable, across the parties, because they will not stop him.
 
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/theradiooperator/trumpsholodomor/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+—— The Radio Operator.
