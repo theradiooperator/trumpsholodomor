@@ -11,6 +11,8 @@ It is to broadcast our sense that we already have a willfully ignorant response 
 
 Either Donnie is out of his league or he doesn't care.
 
-We see his lack of leadership as crimnal, but so many more are culpable, across the parties, because they will not stop him. There are many plausible excuses and interesting analyses about this dynamic, they are not sufficient to erase culpability. This crippled ability to mitigate disaster is not so unlike the worst of Sovietism. (Let's not give it the honor of being called communism, just as the United States doesn't really resemble a free market.)
+We see his lack of leadership as crimnal, but so many more are culpable, across the parties, because they will not stop him. 
+
+There are many plausible excuses and interesting analyses about this dynamic; they are not sufficient to erase culpability. This crippled ability to mitigate disaster is not so unlike the worst of Sovietism. (Let's not give it the honor of being called communism, just as the United States doesn't really resemble a free market.)
 
 —— The Radio Operator
